@@ -1,4 +1,4 @@
-![woby-walter_bark gif 588c70dea248aeb643f83e7efaba4b78](https://github.com/user-attachments/assets/170fc5bc-bd27-41f5-99ad-cb23c9bb537f)
+![776px-Walter_Animated_Short_Background](https://github.com/user-attachments/assets/7b09203a-c780-4fa9-9afc-884d14b83b5d)
 
 
 
