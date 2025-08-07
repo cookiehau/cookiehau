@@ -1,6 +1,6 @@
-![776px-Walter_Animated_Short_Background](https://github.com/user-attachments/assets/7b09203a-c780-4fa9-9afc-884d14b83b5d)
+![stephane-gaudette-c3m2-swamp0008](https://github.com/user-attachments/assets/7b12dd2b-6f59-471d-adb1-b6725653b6cf)
 
-‎![](https://komarev.com/ghpvc/?username=cookiehau&color=435876&label=views)
+‎![](https://komarev.com/ghpvc/?username=cookiehau&color=685616&label=views)
 
 
 
